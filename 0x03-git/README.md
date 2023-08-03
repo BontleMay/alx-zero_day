@@ -1,1 +1,1 @@
-Getting familiar with Repositories updated
+Getting familiar with Repositories Updated
